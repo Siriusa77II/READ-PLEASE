@@ -14,7 +14,7 @@ I start slowly falling in depression, and of course one probleme never come alon
 I get in deep depression, money issue, familly issue, and all that "good" stuff.  
 I almost get homeless, ppl was leaving me, i start thinking about the worst, and still keeping everything inside.  
 Until I meet "[The Wall](http://TheWall.ovh)" a little group of friends i meet on WoW. We created a Discord server and start talking everyday.  
-On of my friend start pushing me to open myself to other and stop keeping everything inside, so i tell them my story, they helped me a lot, for the first time i wasent Sirius, I was juste me.  
+One of my friend start pushing me to open myself to other and stop keeping everything inside, so i tell them my story, they helped me a lot, for the first time i wasent Sirius, I was juste me.  
 it was like this song of miku "Rolling Girl"  
   ```
 Repeating every word and hiding every meaning
@@ -33,7 +33,7 @@ It will be okay
 Please, just let me hold your breath for now.
 ```  
 
-This song was exactly my feeling.  
+This song was exactly my feeling, with The Wall and my Friends.  
   
   
 but i still was Sirius when i wasent with them.   
@@ -47,4 +47,4 @@ For the end, I want to say Thanks you to all of my friend, for supporting me.
 i'm going to feel way better from now. Thanks you guys! <3  
 Also i want to say thanks you to everyone helped me here, on code, and website optimisation or for fixing stuff.  
   
-Thanks you.  
+Thanks you.
