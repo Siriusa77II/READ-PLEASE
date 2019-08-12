@@ -1,5 +1,5 @@
 # READ-PLEASE
-hey dear Follower, Lately I had a lot of trouble in my life. I mean this was the worst 4 years I ever knowed.  
+Dear Follower, Lately I had a lot of trouble in my life. I mean this was the worst 4 years I ever knowed.  
 i get use to allways bottle up everything in me. I started a Youtube Channel 7 years ago.  
 doing my lil video and having fun. i meet a lot of People some was nice, other not, at the begining every message count, goodor bad,  
 and the bad one hurts you a lot. and with the time you get over it... just thinking they are haters, dont care anymore...  
